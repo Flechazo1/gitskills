@@ -1,2 +1,0 @@
-# gitskills
-cxkHHHHHH66666
